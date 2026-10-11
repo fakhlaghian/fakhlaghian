@@ -1,4 +1,4 @@
-# Dr. Fardin Akhlaghian Tab
+# Fardin Akhlaghian Tab
 
 **Associate Professor | University of Kurdistan, Iran**
 
